@@ -14,6 +14,8 @@
 
 ![高雄科技大學](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTENwcidd4evjSwg49Cbk3OUCG7rNAfokImQ-tKQ4FI9_dWtlhjecsoXm4&s=10)
 
+> 這世上除了身體上的痛，其他都是價值觀帶來的
+
 工作經驗:
 | 工作經驗 | 薪水 | 負責人 | 薪資計算 |
 |---|:---:|:---:|---:|
